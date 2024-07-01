@@ -5,7 +5,7 @@ Tim Cook: Wanted to show kids it's ok to be gay
 ##### 인터뷰 진행자:
 You told just a moment ago about growing up and you describe it as a lower middle class environment.
 
-방금 전에 자랐던 환경에 대해 이야기해주셨는데, 본인이 중하위 사회 계층 환경에서 자랐다고 설명해주셨습니다.
+방금 전에 자랐던 환경에 대해 이야기해주셨는데, 본인이 중하층 가정 환경에서 자랐다고 설명해주셨습니다.
 
 \
 You're gay and you came out very proudly. It's quite rare. It's quite brave for CEOs. Especially in Silicon Valley. It doesn't happen that much. What do you make uh... Do you believe the environment has become better, more tolerant for gay people in, let's say, just in your industry?
