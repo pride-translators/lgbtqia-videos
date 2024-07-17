@@ -126,13 +126,13 @@ And I hope that some of the stuff that I do, winds up helping other people and i
 ##### 인터뷰 진행자:
 You know, his widow Laurene Powell Jobs is addressing a very key issue of our time, which is the press and how to support the press, and she's used a lot of her money to buy The Atlantic and to try to revive that. We see Jeff Bezos has done that with the Washington Post. How do you assess that?
 
-있잖아요. 스티브 잡스의 아내 Laurene Powell Jobs 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? Jeff Bezos 도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
+있잖아요. 스티브 잡스의 아내인 로렌 파월 잡스 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? Jeff Bezos 도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
 
 
 ##### 팀쿡
 Well, I love Laurene. And I love Steve. And I applaud all the work she's doing with Emerson Collective, which is the sort of her organization. She's working on everything from climate change to education, focusing on the news, as you as you just said. And so many other things that are immigration that are so important to our times, and I applaud her for doing that.
 
-우선은... Laurene이 좋은 사람이라고 생각하구요. 스티브 잡스도 좋은 사람이라고 생각하구요. Laurene이 거의 가지고 계신 Emerson Collective 사로 하는 일들도 정말 좋은 일이라고 생각합니다. 기후 변화부터 교육 까지 모든 일들을 다루고 있고, 뉴스에도 집중하고 있구요. 방금 말씀하셨던 것처럼 현 세대에 정말 중요한 이민 관련 문제도 다루고 있구요. 그런 일을 하는 게 박수를 받아야 한다고 생각합니다.
+우선은... 로렌이 좋은 사람이라고 생각하구요. 스티브 잡스도 좋은 사람이라고 생각하구요. 로렌이 거의 가지고 계신 Emerson Collective 사로 하는 일들도 정말 좋은 일이라고 생각합니다. 기후 변화부터 교육 까지 모든 일들을 다루고 있고, 뉴스에도 집중하고 있구요. 방금 말씀하셨던 것처럼 현 세대에 정말 중요한 이민 관련 문제도 다루고 있구요. 그런 일을 하는 게 박수를 받아야 한다고 생각합니다.
 
 
 ##### 인터뷰 진행자:
