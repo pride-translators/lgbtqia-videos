@@ -15,7 +15,7 @@ You're gay and you came out very proudly. It's quite rare. It's quite brave for 
 \
 And secondly, what do you think of the current debate by the administration over how to redefine transgender? They're saying, forget what we thought a year ago now we're going to say only identified by the sexual organs with which you're born.
 
-그리고 두 번쨰로, 이번 행정부가 트랜스젠더 관련한 내용들을 어떻게 재정의 할지 논의하는 부분에 관련해서 어떻게 생각하시나요? 작년에 생각했던 내용을 다 잊고 이제는 태어날 때의 생식기로만 사람들을 보자고 하잖아요?
+그리고 두 번쨰로, 이번 행정부가 트랜스젠더 관련한 내용들을 어떻게 재정의 할지 논의하는 부분에 관련해서 어떻게 생각하시나요? 작년까지 생각했던 내용을 다 잊고 이제는 태어날 때의 생식기로만 사람들을 보자고 하잖아요?
 
 
 ##### 팀쿡:
@@ -91,12 +91,12 @@ It is extraordinary to look in and see how huge a cultural debate the transgende
 ##### 팀쿡:
 It doesn't surprise me, unfortunately, because I grew up and I saw discrimination my whole life. Right? I saw it with African Americans and their fight for their rights. I've seen it with women in you know, it was only 100 years ago that women were given the right to vote. And so I mean, you think about this, and what? women weren't allowed to vote? Who came up with that?
 
-안타깝게도 저는 딱히 놀랍지도 않은 것 같습니다. 그동안 자라오면서 차별들을 쭉 봐왔거든요. 그쵸? 아프리카계 미국인들이 자신들의 권리를 위해 싸우는 것을 봤구요. 여성들의 사례도 봤네요. 100년 전까지만 해도 여성들이 투표할 권리가 없었잖아요? 지금 잘 생각을 해보면 "뭐? 여성들이 투표권이 없었다고? 누가 그런걸 생각해낸거야?" 라고 할만하잖아요?
+안타깝게도 저는 딱히 놀랍지도 않은 것 같습니다. 그동안 자라오면서 차별들을 쭉 봐왔거든요. 그쵸? 아프리카계 미국인들이 자신들의 권리를 위해 싸우는 것을 봤구요. 여성들의 사례도 봤네요. 100년 전까지만 해도 여성들이 투표할 권리가 없었잖아요? 지금 잘 생각을 해보면 "뭐? 여성들이 참정권이 없었다고? 누가 그런걸 생각해낸거야?" 라고 할만하잖아요?
 
 \
 I mean, and so I think each generation has a responsibility to to increase and expand the definition of human rights. And I feel that and I think the the, what I can do is not only for the gay community and the transgender community, but I want to help women. I want to help African Americans, I want to help Hispanics, I want to help immigrants. I want to help religious minorities. Because at the end of the day, the problem, it comes down to one thing, treating people with dignity and respect. I mean, at the basic, that is what it is. I look at that and go, oh my god! If ever in one day that somebody could declare everyone treat everybody else with dignity and respect. The world would be totally different. Wouldn't it be great?
 
-저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여자들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성을 존중하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두가 서로를 존엄성을 존중하면서 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
+저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성을 존중하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두가 서로를 존엄성을 존중하면서 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
 
 
 ##### 인터뷰 진행자:
