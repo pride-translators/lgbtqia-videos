@@ -129,7 +129,7 @@ You know, his widow Laurene Powell Jobs is addressing a very key issue of our ti
 있잖아요. 스티브 잡스의 아내인 로렌 파월 잡스 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? Jeff Bezos 도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
 
 
-##### 팀쿡
+##### 팀쿡:
 Well, I love Laurene. And I love Steve. And I applaud all the work she's doing with Emerson Collective, which is the sort of her organization. She's working on everything from climate change to education, focusing on the news, as you as you just said. And so many other things that are immigration that are so important to our times, and I applaud her for doing that.
 
 우선은... 로렌이 좋은 사람이라고 생각하구요. 스티브 잡스도 좋은 사람이라고 생각하구요. 로렌이 거의 가지고 계신 Emerson Collective 사로 하는 일들도 정말 좋은 일이라고 생각합니다. 기후 변화부터 교육 까지 모든 일들을 다루고 있고, 뉴스에도 집중하고 있구요. 방금 말씀하셨던 것처럼 현 세대에 정말 중요한 이민 관련 문제도 다루고 있구요. 그런 일을 하는 게 박수를 받아야 한다고 생각합니다.
@@ -141,7 +141,7 @@ I could end it, Tim. But I want to ask you one more question. Apple Park, huge, 
 여기서 끝낼수도 있지만 하나만 더 여쭤보도록 하겠습니다. 애플 파크 말인데요. 아름답고 크고 새롭고 반짝반짝하고 유리로 된 건물 있잖아요? 이 건물이 모든 운영 수준의 디자이너들이 매우 긴밀하게 작업을 한 거라고 들었는데요. 디자이너 겸 최고 책임자인 조니 아이브도 인터뷰에서 이 내용을 설명했죠. 그리고 아이브가 이 건물이 미래의 애플 제품이 될수도 있는 자율 주행 시스템의 전조나 인큐베이터 역할을 할수 있을건지에 대한 질문도 받았습니다. 이에 대해 말씀해주실 만한게 있으실까요?
 
 
-##### 팀쿡
+##### 팀쿡:
 Well, I can tell you that we love Apple Park. I moved in there in January and I had such high expectations for it. But it's exceeded all of those. The thing I didn't appreciate before I moved. I knew it was going to be fantastic, but I didn't know it was going to make the company seem smaller. But when you're all in one building or a significant number of people in one building, you see so many more people during the course of the day. And all of a sudden you feel really small again and I think there's a privilege in doing that.
 
 일단 제가 애플 파크를 정말 좋아한다고 말씀 드릴수 있을 것 같습니다. 1월에 그 건물로 이동을 했고 기대치가 정말 컸었는데, 그 건물이 그 기대치를 넘어버렸습니다. 사실 이동하기 전에 불만이 좀 있었는데요. 애플 파크가 엄청 환상적일거라는 걸 알고는 있었지만, 이 건물이 회사를 더 작게 느껴지게 만들지는 몰랐습니다. 한 건물에 모두가 모이고, 혹은 많은 수의 사람들이 한 건물에 모이게 되고, 그렇게 하루를 지내면서 정말 많은 사람들을 보게 됩니다. 그러다 보면 갑자기 스스로가 매우 작게 느껴지는데, 그게 하나의 특권이라고 생각합니다.
@@ -153,7 +153,7 @@ And the autonomous driving system?
 자율 주행 자동차에 대해서는 해주실 말씀이 있으실까요?
 
 
-##### 팀쿡
+##### 팀쿡:
 We're working on autonomy. We are working on autonomous systems. On the software side to be very clear. And because we think autonomy is a core technology, but it can be used in many different ways, right? People automatically think about it in the car sense, but the autonomy itself can be used in so many different ways. I wouldn't want to give you the list, but it can be used in a lot of different ways. And... it turns out that autonomy is the probably the mother of all machine learning projects. So you also build a lot of skills and working on autonomy that can be used across the company.
 
 자율 관련해서 작업중인게 있긴 합니다. 정확히는 자율 주행 "시스템"을 소프트웨어 차원에서 작업하고 있구요. 저희 회사가 자율적인 시스템들을 핵심 기술이라고 생각하기도 하고, 이런 기술이 여러 다른 방법으로 사용될수도 있잖아요? 사람들이 자동차 관련해서 생각하는게 있긴 하지만, 자율 시스템 자체가 정말 다양한 곳에 사용될 수 있다고 생각합니다. 자율 시스템이 머신 러닝 프로젝트들의 어머니이기도 하구요. 그래서 회사 전반에 걸쳐서 사용될 수 있는 자율 시스템을 작업하면서 정말 많은 경험도 쌓게 되는것 같네요.
@@ -165,7 +165,7 @@ Tim Cook, thank you very much indeed.
 팀쿡, 좋은 인터뷰 고맙습니다.
 
 
-##### 팀쿡
+##### 팀쿡:
 Thank you for inviting me.
 
 인터뷰 해주셔서 감사합니다.
