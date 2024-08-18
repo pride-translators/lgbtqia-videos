@@ -13,17 +13,17 @@ I didn't really like playing with Barbie dolls or wearing dresses. I preferred h
 \
 Not that many people liked me. I got picked on. It made me very sad.
 
-사람들이 저를 그렇게 좋아하진 않았어요. 괴롭힘을 당했고 정말 슬펐었어요.
+사람들이 저를 그렇게 좋아하진 않았어요. 괴롭힘을 당했고 정말 슬펐었구요.
 
 \
 When I started to hit puberty. That's when it got hard.
 
-사춘기를 겪게 되고 상황이 더 악화됐었던것 같아요.
+사춘기를 겪게 되면서 상황이 더 악화됐었던것 같아요.
 
 \
 I felt fat and ugly and I got bullied for being the tomboy. But I knew there was something more to me, something that was missing.
 
-제 자신이 뚱뚱하고 못생기다고 느껴졌고 톰보이 (tomboy)가 됐다며 학교에서 괴롭힘을 당하기도 했어요. 하지만 제 내면에 빠져있는 무언가가 더 있다고 전부터 알고는 있었던 것 같아요.
+제 자신이 뚱뚱하고 못생기다고 느껴졌고 톰보이 (tomboy) 가 됐다며 학교에서 괴롭힘을 당하기도 했어요. 하지만 제 내면에 빠져있는 무언가가 더 있다고 전부터 알고는 있었던 것 같아요.
 
 \
 I didn't know who I was, but then I got a phone one day and discovered the term transgender, and I looked it up, and it made so much more sense to me.
@@ -33,7 +33,7 @@ I didn't know who I was, but then I got a phone one day and discovered the term 
 \
 I realized that I was transgender.
 
-그렇게 제가 트랜스젠더라는 것을 깨달았어요.
+그렇게 제가 트랜스젠더라는 것을 깨닫게 됐어요.
 
 \
 I didn't tell anyone until grade eight. I was too scared to come out because I thought people wouldn't like me.
@@ -48,7 +48,7 @@ But surprisingly, no one really hated me for it.
 \
 I had so many friends who cared and tried to best understand, but sadly, some people didn't, but that's okay. It's hard to understand.
 
-절 신경써주고 이해할려는 친구들이 정말 많았어요. 하지만 슬프게도 어떤 사람들은 그러지 않았는데요. 그래도 괜찮아요. 이해하기 어려운 내용이니까요.
+절 신경써주고 이해해줄려는 친구들이 정말 많았어요. 하지만 슬프게도 어떤 사람들은 그러지 않았는데요. 그래도 괜찮아요. 이해하기 어려운 내용이니까요.
 
 \
 Now, I'm very happy of who I am.
