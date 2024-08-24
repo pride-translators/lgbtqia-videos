@@ -1,6 +1,6 @@
 # 팀쿡: 게이가 되어도 괜찮다고 보여주고 싶었다
 Tim Cook: Wanted to show kids it's ok to be gay
-> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/fl5xurWyV2o)서 시청하실수 있습니다.
+> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/fl5xurWyV2o)서 시청하실 수 있습니다.
 
 ##### 인터뷰 진행자:
 You told just a moment ago about growing up and you describe it as a lower middle class environment.
