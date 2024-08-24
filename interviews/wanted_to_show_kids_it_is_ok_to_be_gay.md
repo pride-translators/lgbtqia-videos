@@ -126,7 +126,7 @@ And I hope that some of the stuff that I do, winds up helping other people and i
 ##### 인터뷰 진행자:
 You know, his widow Laurene Powell Jobs is addressing a very key issue of our time, which is the press and how to support the press, and she's used a lot of her money to buy The Atlantic and to try to revive that. We see Jeff Bezos has done that with the Washington Post. How do you assess that?
 
-있잖아요. 스티브 잡스의 아내인 로렌 파월 잡스 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? Jeff Bezos 도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
+있잖아요. 스티브 잡스의 아내인 로렌 파월 잡스 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? 제프 베이조스도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
 
 
 ##### 팀쿡:
