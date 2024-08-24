@@ -1,5 +1,5 @@
 # 저는 트랜스젠더예요
-> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/fl5xurWyV2o)서 시청하실수 있습니다.
+> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/EM8X9yacpNM)서 시청하실수 있습니다.
 
 When I was younger, I realized there was something different about me.
 
