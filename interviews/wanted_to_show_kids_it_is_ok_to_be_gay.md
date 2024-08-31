@@ -21,7 +21,7 @@ And secondly, what do you think of the current debate by the administration over
 ##### 팀쿡:
 My strong view is everybody should be treated with dignity and respect. And that's the way I look at everyone, regardless of their sexual orientation, regardless of the religion, their gender, their ethnic history, regardless of their gender identity, anything right?
 
-제 강한 의견으로는, 모든 사람들이 존엄성을 존중받아야 한다고 생각하는데요. 저는 모든 사람을 그렇게 바라보거든요. 성적 지향, 종교, 젠더, 인종적 역사, 젠더 정체성 그 어떤 것과도 상관 없이 말이죠.
+제 강한 의견으로는, 모든 사람들이 존엄성과 존중으로 대해져야 한다고 생각하는데요. 저는 모든 사람을 그렇게 바라보거든요. 성적 지향, 종교, 젠더, 인종적 역사, 젠더 정체성 그 어떤 것과도 상관 없이 말이죠.
 
 \
 That's the way I look at things. I was public because I begin to receive stories from kids who read something online that I was gay and they were going through... being bullied or feeling like their family didn't love them... or being pushed out of their home... very close to suicide. I mean, just things that really just pulled my heart and I started saying you know, I am a private person. And so I've kept me to to my small circle, and I started thinking, you know, that is a selfish thing to do at this point. I need to be bigger than that. I need to do something for them and show them that you can be gay and still go on and do some big jobs in life that there's a path there.
@@ -96,7 +96,7 @@ It doesn't surprise me, unfortunately, because I grew up and I saw discriminatio
 \
 I think each generation has a responsibility to increase and expand the definition of human rights. And I feel that and I think what I can do is not only for the gay community and the transgender community. But I want to help women. I want to help African Americans, I want to help Hispanics, I want to help immigrants, I want to help religious minorities. Because at the end of the day, the problem, it comes down to one thing. Treating people with dignity and respect. I mean, at the basic, that is what it is. I look at that and go... Oh my god! If in one day, that somebody could declare everyone treat everybody else with dignity and respect, the world would be totally different. Wouldn't it be great?
 
-저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성을 존중하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두가 서로를 존엄성을 존중하면서 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
+저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성과 존중으로 대하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두 서로를 존엄성과 존중으로 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
 
 
 ##### 인터뷰 진행자:
