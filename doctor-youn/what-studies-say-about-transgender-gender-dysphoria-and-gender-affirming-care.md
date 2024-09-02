@@ -29,7 +29,7 @@ Did you know that only 0.7% of the population is transgender? Well, this is a re
 \
 Well, studies show that transgender people realize that they are transgender at an average age of only 8.5 years old. However, they don't disclose their feelings until about 10 years later, on average. Now, before we go any further, I think it's important for us to define two very important terms, cisgender and natal gender. You know, I think we all know what transgender means, but do you know what cisgender and natal gender means? Because I think it's important to this whole discussion.
 
-연구에 따르면 트랜스젠더들은 평균적으로 8.5세에 자신이 트랜스젠더라는 것을 깨닫게 된다고 합니다. 하지만 평균적으로는 10년이 지날 때 까지 자신의 감정을 털어놓지 않습니다. 더 이야기하기 전에 시스젠더(cisgender)와 출생 젠더(natal gender), 두 가지 중요한 용어를 짚고 넘어가는 것이 중요한 것 같습니다. 모두가 트랜스젠더가 무슨뜻인지 아는 것 같지만, 시스젠더와 나탈젠더가 뭔지 아시나요? 이 내용 전체에 있어서 중요한 내용인 것 같거든요.
+연구에 따르면 트랜스젠더들은 평균적으로 8.5세에 자신이 트랜스젠더라는 것을 깨닫게 된다고 합니다. 하지만 평균적으로는 10년이 지날 때 까지 자신의 감정을 털어놓지 않습니다. 더 이야기하기 전에 시스젠더(cisgender)와 출생 젠더(natal gender), 두 가지 중요한 용어를 짚고 넘어가는 것이 중요한 것 같습니다. 모두가 트랜스젠더가 무슨뜻인지 아는 것 같지만, 시스젠더와 출생젠더가 뭔지 아시나요? 이 내용 전체에 있어서 중요한 내용인 것 같거든요.
 
 \
 The term cisgender refers to people who identify as the gender of their birth. Natal Gender refers to the sex that was assigned at birth. So I was born a male. I identify as a male. So I'm a cisgendered male, because I identify as that and my natal gender is male.
@@ -49,7 +49,7 @@ Now, some people may say that transgender people have more mental illness, there
 \
 So is it just the psychiatrists that believe this? Well, let's see what the American Academy of Pediatrics states. They state that if a mental health issue exists, it most often stems from stigma and negative experiences rather than being intrinsic to the child. So transgender people aren't born with more mental illness, and mental illness does not cause them to be transgender. Transgender people who suffer from mental health issues often have it due to the way they are treated in our society.
 
-이게 정신과 의사들만의 의견일과요? 미국 소아과 학외는 뭐라고 말할까요? 여기서는 정신 건강 문제가 있다면, 아이에게 내재적으로 존재하는 것이 아니라 종종 낙인과 부정적인 경험으로부터 비롯되는 경우가 대부분이라고 합니다. 즉, 트랜스젠더가 정신 질환들을 더 많이 가지고 태어난 게 아니고, 정신 질환이 그들이 트랜스젠더가 되게 한 것도 아닙니다. 정신 건강 문제들로부터 고통을 받는 트랜스젠더들은 대개는 사회가 트랜스젠더를 대우하는 방식으로부터 기인한 경우가 잦습니다.
+이게 정신과 의사들만의 의견일과요? 미국 소아과 학회는 뭐라고 말할까요? 여기서는 정신 건강 문제가 있다면, 아이에게 내재적으로 존재하는 것이 아니라 종종 낙인과 부정적인 경험으로부터 비롯되는 경우가 대부분이라고 합니다. 즉, 트랜스젠더가 정신 질환들을 더 많이 가지고 태어난 게 아니고, 정신 질환이 그들이 트랜스젠더가 되게 한 것도 아닙니다. 정신 건강 문제들로부터 고통을 받는 트랜스젠더들은 대개는 사회가 트랜스젠더를 대우하는 방식으로부터 기인한 경우가 잦습니다.
 
 \
 Now, on top of this, youth who identify as transgender experience disproportionately high rates of homelessness, physical violence, both violence at home and violence in the community, substance abuse and high risk sexual behaviors. So when you take all of this into account, I think you get the picture that transgender people are facing. It's discrimination, it's ridicule, bullying and all of that leading to a poor sense of self worth and even mental illness that is not, I repeat, it is not a function of them being transgender. It is the result of society's lack of empathy and care for them as individuals, and studies show that this starts at home. In fact, one study looked at 433 transgender adolescents in Ontario, and they found that the suicide attempt rate was 4% when having supportive parents, and as high as 60% when parents weren't supportive. We must do better than that.
