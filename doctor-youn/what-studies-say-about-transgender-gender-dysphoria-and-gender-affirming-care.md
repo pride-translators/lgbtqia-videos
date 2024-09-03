@@ -8,7 +8,7 @@ Dylan Mulvaney가 Bud Light와 브랜드 계약을 맺은 후 한동안 트랜�
 \
 **Ben Shapiro:** "A beer is now promoting itself during March Madness, a male oriented event, by hiring a man who says he is a woman dressed as Audrey Hepburn to sell you beer."
 
-**Ben Shapiro:** "남성 중심의 행사인 "March Madness"를 하는 동안 자신을 여성이라고 주장하는 남성을 고용해 Audrey Hepburn처럼 옷을 시키면서 맥주를 팔고 있네요."
+**Ben Shapiro:** "맥주 회사가 이제는 남성 중심의 행사인 "March Madness"를 하는 동안 Audrey Hepburn처럼 옷을 입고 자신을 여성이라고 주장하는 남성을 고용해 광고를 하고 있네요."
 
 \
 Whether you're liberal or conservative, you probably have some strong feelings about this. So in this video, I'm going to share with you what medical studies say about gender affirmation and transgender people and how I, as a real doctor, a Board Certified Plastic Surgeon, believe this whole situation with transgender children and adults should be handled.
