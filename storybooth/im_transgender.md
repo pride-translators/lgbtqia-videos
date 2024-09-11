@@ -1,4 +1,9 @@
-# 저는 트랜스젠더예요
+---
+title: "저는 트랜스젠더에요"
+---
+
+
+# 저는 트랜스젠더에요
 > 영상을 시청하고 싶으신가요? [여기](https://youtu.be/EM8X9yacpNM)서 시청하실 수 있습니다.
 
 When I was younger, I realized there was something different about me.
