@@ -20,7 +20,7 @@ You're gay and you came out very proudly. It's quite rare. It's quite brave for 
 \
 And secondly, what do you think of the current debate by the administration over how to redefine transgender? They're saying, forget what we thought a year ago now we're going to say only identified by the sexual organs with which you're born.
 
-그리고 두 번쨰로, 이번 행정부가 트랜스젠더 관련한 내용들을 어떻게 재정의 할지 논의하는 부분에 관련해서 어떻게 생각하시나요? 작년까지 생각했던 내용을 다 잊고 이제는 태어날 때의 생식기로만 사람들을 보자고 하잖아요?
+그리고 두 번째로, 이번 행정부가 트랜스젠더 관련한 내용들을 어떻게 재정의 할지 논의하는 부분에 관련해서 어떻게 생각하시나요? 작년까지 생각했던 내용을 다 잊고 이제는 태어날 때의 생식기로만 사람들을 보자고 하잖아요?
 
 
 ##### 팀쿡:
