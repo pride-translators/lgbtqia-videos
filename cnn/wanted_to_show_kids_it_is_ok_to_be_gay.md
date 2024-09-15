@@ -12,12 +12,14 @@ You told just a moment ago about growing up and you describe it as a lower middl
 
 방금 전에 자랐던 환경에 대해 이야기해주셨는데, 본인이 중하층 가정 환경에서 자랐다고 설명해주셨습니다.
 
-\
+<br>
+
 You're gay and you came out very proudly. It's quite rare. It's quite brave for CEOs. Especially in Silicon Valley. It doesn't happen that much. What do you make uh... Do you believe the environment has become better, more tolerant for gay people in, let's say, just in your industry?
 
 그래서... 본인이 게이고 이를 자랑스럽게 커밍아웃 하셨는데요. CEO들 사이에서는 상당히 드문 일입니다. 실리콘 밸리에서는 더욱 그렇고, 그렇게 자주 일어나는 일은 아닌 것 같습니다. 어떻게... 일하시는 업계 내 환경이 더 나아지고 동성애자들에게 더 관용적으로 바뀌었다고 생각하시나요?
 
-\
+<br>
+
 And secondly, what do you think of the current debate by the administration over how to redefine transgender? They're saying, forget what we thought a year ago now we're going to say only identified by the sexual organs with which you're born.
 
 그리고 두 번째로, 이번 행정부가 트랜스젠더 관련한 내용들을 어떻게 재정의 할지 논의하는 부분에 관련해서 어떻게 생각하시나요? 작년까지 생각했던 내용을 다 잊고 이제는 태어날 때의 생식기로만 사람들을 보자고 하잖아요?
@@ -28,12 +30,14 @@ My strong view is everybody should be treated with dignity and respect. And that
 
 제 강한 의견으로는, 모든 사람들이 존엄성과 존중으로 대해져야 한다고 생각하는데요. 저는 모든 사람을 그렇게 바라보거든요. 성적 지향, 종교, 젠더, 인종적 역사, 젠더 정체성 그 어떤 것과도 상관 없이 말이죠.
 
-\
+<br>
+
 That's the way I look at things. I was public because I begin to receive stories from kids who read something online that I was gay and they were going through... being bullied or feeling like their family didn't love them... or being pushed out of their home... very close to suicide. I mean, just things that really just pulled my heart and I started saying you know, I am a private person. And so I've kept me to to my small circle, and I started thinking, you know, that is a selfish thing to do at this point. I need to be bigger than that. I need to do something for them and show them that you can be gay and still go on and do some big jobs in life that there's a path there.
 
 그게 제 생각이었고... 이번에 커밍아웃을 하기 전에 온라인에서 아이들의 이야기를 보게 됐었습니다. 본인이 게이인데 학교에서 괴롭힘에 시달리고 가족들이 본인을 사랑하지 않는 것 같고, 어떤 아이들은 집에서 쫓겨나기까지 한다고 들은 것 같습니다. 자살을 거의 할뻔 하기도 하고요. 이런걸 들으니까 마음이 너무 아팠습니다. 그래서 제가 개인적인 사람이고 개인적으로 아는 사람들끼리 지내고 했지만, 점점 이런 생각이 들게 됐던것 같습니다. 이렇게 하는게 이 시점에서는 이기적인 것 같다고요. 제가 더 크게 돼야 한다고 생각이 들었던 것 같네요. 그런 아이들을 위해 내가 무언가를 해야한다고 생각했고, 그런 아이들에게 게이가 돼도 계속 무언가를 하고 큰 일을 해낼 수 있다고, 길이 분명히 있다는 걸 보여주고 싶었습니다.
 
-\
+<br>
+
 That is the reason I did it. I did not do it for other CEOs to come out. It wasn't even in my mind. I was the first, which is kind of shocking that I was the first.
 
 그래서 커밍아웃을 했습니다. 다른 CEO들도 커밍아웃 하라고 한것도 아니고, 그런 의도도 아니었습니다. 사실 제가 처음 했다는게 충격적이기도 했지만요.
@@ -98,7 +102,8 @@ It doesn't surprise me, unfortunately, because I grew up and I saw discriminatio
 
 안타깝게도 저는 딱히 놀랍지도 않은 것 같습니다. 그동안 자라오면서 차별들을 쭉 봐왔거든요. 그쵸? 아프리카계 미국인들이 자신들의 권리를 위해 싸우는 것을 봤구요. 여성들의 사례도 봤네요. 100년 전까지만 해도 여성들이 투표할 권리가 없었잖아요? 지금 잘 생각을 해보면 "뭐? 여성들이 참정권이 없었다고? 누가 그런걸 생각해낸거야?" 라고 할만하잖아요?
 
-\
+<br>
+
 I think each generation has a responsibility to increase and expand the definition of human rights. And I feel that and I think what I can do is not only for the gay community and the transgender community. But I want to help women. I want to help African Americans, I want to help Hispanics, I want to help immigrants, I want to help religious minorities. Because at the end of the day, the problem, it comes down to one thing. Treating people with dignity and respect. I mean, at the basic, that is what it is. I look at that and go... Oh my god! If in one day, that somebody could declare everyone treat everybody else with dignity and respect, the world would be totally different. Wouldn't it be great?
 
 저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성과 존중으로 대하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두 서로를 존엄성과 존중으로 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
