@@ -26,7 +26,7 @@ Well, this is a super hot topic, and I know people have very strong opinions abo
 
 Did you know that only 0.7% of the population is transgender? Well, this is a relatively tiny segment of the overall population of the United States, yet it seems like this subject is in the news every single day.
 
-인구의 단 0.7%만이 트랜스젠더라는 사살을 아시나요? 미국 인구의 비교적 작은 부분이긴 하지만 이 주제를 뉴스에서 매일 매일 다루는 것 같습니다.
+인구의 단 0.7%만이 트랜스젠더라는 사실을 아시나요? 미국 인구의 비교적 작은 부분이긴 하지만 이 주제를 뉴스에서 매일 매일 다루는 것 같습니다.
 
 Well, studies show that transgender people realize that they are transgender at an average age of only 8.5 years old. However, they don't disclose their feelings until about 10 years later, on average. Now, before we go any further, I think it's important for us to define two very important terms, cisgender and natal gender. You know, I think we all know what transgender means, but do you know what cisgender and natal gender means? Because I think it's important to this whole discussion.
 
