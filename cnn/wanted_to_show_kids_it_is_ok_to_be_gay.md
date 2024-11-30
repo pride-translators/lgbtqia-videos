@@ -113,7 +113,7 @@ You mentioned Steve Jobs in your speech. He's obviously the lodestar, and that'l
 ##### 팀쿡:
 But the truth is, that I don't think about that. That is the honest to goodness truth is. I think if you focus on that, you begin to fixate internally and be focused on yourself. And first of all, I'm not good at it. And I don't believe I should be doing that. I think I should be focusing on other people. I don't really think about... I just do stuff.
 
-사실은요, 딱히 그런 쪽으로는 생각하지 않는 것 같습니다. 정말 솔직하게요. 제 생각에는 그런 쪽으로 생각하게 된다면 내부적으로 고정되게 되고 본인에게만 집중하게 되는 것 같은데요. 저는 그런걸 잘 하지도 않고, 그렇게 해서도 안된다고 생각합니다. 다른 사람들에게 집중을 하면 안된다고 생각하고... 그래서 그런 생각을 하지 않고 그냥 할 일을 하는 것 같네요!
+사실은요, 딱히 그런 쪽으로는 생각하지 않는 것 같습니다. 정말 솔직하게요. 제 생각에는 그런 쪽으로 생각하게 된다면 내부적으로 집착하게 되고 본인에게 집중하게 되는 것 같은데요. 저는 그런걸 잘 하지도 않고, 그렇게 해서도 안된다고 생각합니다. 다른 사람들에게 집중을 하면 안된다고 생각하고... 그래서 그런 생각을 하지 않고 그냥 할 일을 하는 것 같네요!
 
 
 ##### 인터뷰 진행자:
