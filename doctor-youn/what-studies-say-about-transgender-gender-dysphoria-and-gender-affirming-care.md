@@ -1,5 +1,6 @@
 ---
 title: "트랜스젠더, 젠더 불쾌감, 그리고 젠더 획일화 치료에 대해 학계는 어떻게 말하는가"
+excerpt: "Dylan Mulvaney가 Bud Light와 브랜드 계약을 맺은 후 한동안 트랜스젠더 공동체, 트랜스젠더 SNS 스타인 Dylan Mulvaney에 대한 거센 반발이 있었습니다..."
 ---
 
 
