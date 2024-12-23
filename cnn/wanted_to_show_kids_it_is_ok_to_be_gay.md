@@ -5,7 +5,6 @@ excerpt: "방금 전에 자랐던 환경에 대해 이야기해주셨는데, 본
 
 
 # 팀쿡: 아이들에게 게이가 되어도 괜찮다고 보여주고 싶었다
-Tim Cook: Wanted to show kids it's ok to be gay
 > 영상을 시청하고 싶으신가요? [여기](https://youtu.be/fl5xurWyV2o)서 시청하실 수 있습니다.
 
 ##### 인터뷰 진행자:
