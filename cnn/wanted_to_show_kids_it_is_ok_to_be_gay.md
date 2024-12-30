@@ -72,7 +72,7 @@ And they knew.
 ##### 팀쿡:
 At different points in time, I wouldn't want to go into the exactly when and that sort of thing. But I never had the situation of kids that I've now met and talked to personally that are being pushed out of their homes. I've never had that. Personally I can't say I have an experience there. The bullying part. Of course, of course. This happens to almost 100% of people out there and it's not just gay people. It's basically anyone in the minority in some way.
 
-음... 어떤 시기에요. 언제인지는 정확히는 언급하지 않도록 하겠지만요. 그래서 저는 제가 개인적으로 보고 이야기했던 것처럼 집에서 쫓겨났던 아이들이 겪는 상황들을 직접 겪어보진 않았습니다. 한번도 안겪어봤구요. 그래서 제 경험은 아닌 것 같습니다. 하지만 학교 내 괴롭힘은 당연히 겪었습니다. 게이가 아니더라도 거의 100%의 사람들이 겪게 되는 것 같구요. 소수자에 해당하는 누구나 어떤 식으로 겪을 수 있다고 생각합니다.
+음... 어떤 시기에요. 언제인지는 정확히는 언급하지 않도록 하겠지만요. 그래서 저는 제가 개인적으로 보고 이야기했던 것처럼 집에서 쫓겨났던 아이들이 겪는 상황들을 직접 겪어보진 않았습니다. 한번도 안겪어봤구요. 그래서 제 경험은 아닌 것 같습니다. 하지만 학교 내 괴롭힘은 당연히 겪었습니다. 게이가 아니더라도 거의 100%의 사람들이 겪게 되는 것 같구요. 소수자에 해당하는 누구나 어떤 식으로도 겪을 수 있다고 생각합니다.
 
 
 ##### 인터뷰 진행자:
