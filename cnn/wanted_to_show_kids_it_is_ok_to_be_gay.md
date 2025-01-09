@@ -48,7 +48,7 @@ You're proud of it.
 ##### 팀쿡:
 I'm very proud of it. I am very proud of it. Yes, absolutely. To me, it is God's greatest gift to me. Because in doing so, I learned what it was like to be in a minority, and all minorities are not the same. Everybody has their own experience. But the feeling of being in a minority gives you a level of empathy for other people who are not in the majority. And you begin to look at life a little differently. It also, for me, and this is very good for being the CEO of Apple. Because I take a fair amount of shots from different people along the way, is growing... having thick skin, which comes out of being gay as well. It was actually pretty beneficial for this role.
 
-아주 자랑스럽게 생각하죠. 매우 자랑스럽게 생각합니다. 그리고 저에게 있어서는 신이 주신 가장 큰 선물이라고 생각하구요. 게이가 되면서 소수자가 된다는 게 어떤 느낌인지, 그 소수자들도 다 같지 않다는 것을 배울 수 있었던 것 같습니다. 각자가 다른 경험을 가지고 있으니까요. 하지만 소수자가 되는 경험이 다른 다수에 들지 못하는 사람들을 공감할 수 있게 해주는 것 같습니다. 그렇게 삶을 조금 더 다르게 보게 되구요. 그리고 또, 저에게 있어서 애플의 CEO가 되는 데에도 좋은 것 같습니다. 매우 다른 사람들로부터 비난을 받게 되고, 비난에 익숙해지게 되고, 게이가 되는 것도 마찬가지고. 이 CEO라는 역할에 아주 도움이 되는 것 같거든요.
+아주 자랑스럽게 생각하죠. 매우 자랑스럽게 생각합니다. 그리고 저에게 있어서는 신이 주신 가장 큰 선물이라고 생각하구요. 게이가 되면서 소수자인 것이 어떤 느낌인지, 그 소수자들도 다 같지 않다는 것을 배울 수 있었던 것 같습니다. 각자가 다른 경험을 가지고 있으니까요. 하지만 소수자가 되는 경험이 다른 다수에 들지 못하는 사람들을 공감할 수 있게 해주는 것 같습니다. 그렇게 삶을 조금 더 다르게 보게 되구요. 그리고 또, 저에게 있어서 애플의 CEO가 되는 데에도 좋은 것 같습니다. 매우 다른 사람들로부터 비난을 받게 되고, 비난에 익숙해지게 되고, 게이가 되는 것도 마찬가지고. 이 CEO라는 역할에 아주 도움이 되는 것 같거든요.
 
 
 ##### 인터뷰 진행자:
