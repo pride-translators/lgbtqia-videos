@@ -31,12 +31,12 @@ My strong view is everybody should be treated with dignity and respect. And that
 
 That's the way I look at things. I was public because I begin to receive stories from kids who read something online that I was gay and they were going through... being bullied or feeling like their family didn't love them... or being pushed out of their home... very close to suicide. I mean, just things that really just pulled my heart and I started saying you know, I am a private person. And so I've kept me to to my small circle, and I started thinking, you know, that is a selfish thing to do at this point. I need to be bigger than that. I need to do something for them and show them that you can be gay and still go on and do some big jobs in life that there's a path there.
 
-그게 제 생각이었고... 이번에 커밍아웃을 하기 전에 온라인에서 아이들의 이야기를 보게 됐었습니다. 본인이 게이인데 학교에서 괴롭힘에 시달리고 가족들이 본인을 사랑하지 않는 것 같고, 어떤 아이들은 집에서 쫓겨나기까지 한다고 들은 것 같습니다. 자살을 거의 할뻔 하기도 하고요. 이런걸 들으니까 마음이 너무 아팠습니다. 그래서 제가 개인적인 사람이고 개인적으로 아는 사람들끼리 지내고 했지만, 점점 이런 생각이 들게 됐던것 같습니다. 이렇게 하는게 이 시점에서는 이기적인 것 같다고요. 제가 더 크게 돼야 한다고 생각이 들었던 것 같네요. 그런 아이들을 위해 내가 무언가를 해야한다고 생각했고, 그런 아이들에게 게이가 돼도 계속 무언가를 하고 큰 일을 해낼 수 있다고, 길이 분명히 있다는 걸 보여주고 싶었습니다.
+그게 제 관점이구요. 이번에 커밍아웃을 하기 전에 온라인에서 아이들의 이야기를 보게 됐었습니다. 본인이 게이인데 학교에서 괴롭힘에 시달리고 가족들이 본인을 사랑하지 않는 것 같고, 어떤 아이들은 집에서 쫓겨나기까지 한다고 들은 것 같습니다. 자살을 거의 할뻔 하기도 하고요. 이런걸 들으니까 마음이 너무 아팠습니다. 그래서 제가 개인적인 사람이고 개인적으로 아는 사람들끼리 지내고 했지만, 점점 이런 생각이 들게 됐던것 같습니다. 이렇게 하는게 이 시점에서는 이기적인 것 같다고요. 제가 더 크게 돼야 한다고 생각이 들었던 것 같네요. 그런 아이들을 위해 내가 무언가를 해야한다고 생각했고, 그런 아이들에게 게이가 돼도 계속 무언가를 하고 큰 일을 해낼 수 있다고, 길이 분명히 있다는 걸 보여주고 싶었습니다.
 
 
 That is the reason I did it. I did not do it for other CEOs to come out. It wasn't even in my mind. I was the first, which is kind of shocking that I was the first.
 
-그래서 커밍아웃을 했습니다. 다른 CEO들도 커밍아웃 하라고 한것도 아니고, 그런 의도도 아니었습니다. 사실 제가 처음 했다는게 충격적이기도 했지만요.
+그래서 커밍아웃을 했습니다. 다른 CEO들보고 커밍아웃 하라고 한것도 아니고, 그런 의도도 아니었습니다. 사실 제가 처음 했다는게 충격적이기도 했지만요.
 
 
 ##### 인터뷰 진행자:
@@ -96,12 +96,12 @@ It is extraordinary to look in and see how huge a cultural debate the transgende
 ##### 팀쿡:
 It doesn't surprise me, unfortunately, because I grew up and I saw discrimination my whole life. Right? I saw it with African Americans and their fight for their rights. I've seen it with women in you know, it was only 100 years ago that women were given the right to vote. And so I mean, you think about this, and what? Women weren't allowed to vote? Who came up with that?
 
-안타깝게도 저는 딱히 놀랍지도 않은 것 같습니다. 그동안 자라오면서 차별들을 쭉 봐왔거든요. 그쵸? 아프리카계 미국인들이 자신들의 권리를 위해 싸우는 것을 봤구요. 여성들의 사례도 봤네요. 100년 전까지만 해도 여성들이 투표할 권리가 없었잖아요? 지금 잘 생각을 해보면 "뭐? 여성들이 참정권이 없었다고? 누가 그런걸 생각해낸거야?" 라고 할만하잖아요?
+안타깝게도 저는 딱히 놀랍지도 않은 것 같습니다. 그동안 자라오면서 차별들을 쭉 봐왔거든요. 그쵸? 아프리카계 미국인들이 자신들의 권리를 위해 싸우는 것을 봤구요. 여성들의 사례도 봤네요. 100년 전까지만 해도 여성들이 투표할 권리가 없었잖아요? 생각을 해보면 "뭐? 여성들이 참정권이 없었다고? 누가 그런걸 생각해낸거야?" 라고 할만하잖아요?
 
 
 I think each generation has a responsibility to increase and expand the definition of human rights. And I feel that and I think what I can do is not only for the gay community and the transgender community. But I want to help women. I want to help African Americans, I want to help Hispanics, I want to help immigrants, I want to help religious minorities. Because at the end of the day, the problem, it comes down to one thing. Treating people with dignity and respect. I mean, at the basic, that is what it is. I look at that and go... Oh my god! If in one day, that somebody could declare everyone treat everybody else with dignity and respect, the world would be totally different. Wouldn't it be great?
 
-저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들의 존엄성과 존중으로 대하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두 서로를 존엄성과 존중으로 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
+저는 각 세대가 인권의 정의를 높히고 확장할 책임을 가지고 있다고 생각합니다. 이걸 정말 많이 느끼고 있구요. 제가 커밍아웃 하는게 게이나 트랜스젠더 외에도, 여성들도 도왔으면 좋겠구요. 아프리카계 미국인들, 히스패닉들, 이민자들도 마찬가지구요. 종교적 소수자들도 돕고싶습니다. 왜냐하면 결국 문제의 핵심은 사람들을 존엄성과 존중으로 대하는 것이 될테니까요. 기본적으로 그렇게 생각을 하는 것 같네요. 가끔 생각을 하는게 말인데요. 세상에! 어느 날 누군가가 모두 서로를 존엄성과 존중으로 대하라고 선언할 수 있다면 세상이 완전히 달라질 것 같은데. 좋은 일이라고 생각하지 않으신가요?
 
 
 ##### 인터뷰 진행자:
@@ -113,7 +113,7 @@ You mentioned Steve Jobs in your speech. He's obviously the lodestar, and that'l
 ##### 팀쿡:
 But the truth is, that I don't think about that. That is the honest to goodness truth is. I think if you focus on that, you begin to fixate internally and be focused on yourself. And first of all, I'm not good at it. And I don't believe I should be doing that. I think I should be focusing on other people. I don't really think about... I just do stuff.
 
-사실은요, 딱히 그런 쪽으로는 생각하지 않는 것 같습니다. 정말 솔직하게요. 제 생각에는 그런 쪽으로 생각하게 된다면 내부적으로 집착하게 되고 본인에게 집중하게 되는 것 같은데요. 저는 그런걸 잘 하지도 않고, 그렇게 해서도 안된다고 생각합니다. 다른 사람들에게 집중을 하면 안된다고 생각하고... 그래서 그런 생각을 하지 않고 그냥 할 일을 하는 것 같네요!
+사실은요, 딱히 그런 쪽으로는 생각하지 않는 것 같습니다. 정말 솔직하게요. 제 생각에는 그런 쪽으로 생각하게 된다면 내부적으로 집착하게 되고 본인에게 집중하게 되는 것 같은데요. 저는 그런걸 잘 하지도 않고, 그렇게 해서도 안된다고 생각합니다. 다른 사람들에게 집중을 해야 한다고 생각하구요. 그래서 그런 생각을 하지 않고... 그냥 할 일을 하는 것 같네요!
 
 
 ##### 인터뷰 진행자:
@@ -131,13 +131,13 @@ And I hope that some of the stuff that I do, winds up helping other people and i
 ##### 인터뷰 진행자:
 You know, his widow Laurene Powell Jobs is addressing a very key issue of our time, which is the press and how to support the press, and she's used a lot of her money to buy The Atlantic and to try to revive that. We see Jeff Bezos has done that with the Washington Post. How do you assess that?
 
-있잖아요. 스티브 잡스의 아내인 로렌 파월 잡스 가 언론사를 만들고 그런 언론사를 지지하면서 현 시대의 주요 이슈들을 다루고 있는데요. The Atlantic 이라는 언론사를 사는데 엄청 많은 돈을 썼고 이 언론사를 살리려고 하잖아요? 제프 베이조스도 The Washington Post에 똑같은 것들을 하고 있구요. 이것에 대해서는 어떻게 생각하시나요?
+아시다시피, 스티브 잡스의 아내인 로렌 파월 잡스가 언론사와 언론사 지지를 통해 현대의 중요한 이슈들을 다루고 있는데요. The Atlantic (언론사)를 사는데 엄청 많은 돈을 썼고, 이 언론사를 살리려고 하잖아요? 제프 베이조스도 The Washington Post에 그러는 것도 보이구요. 이것에 대해서는 어떻게 생각하시나요?
 
 
 ##### 팀쿡:
 Well, I love Laurene. And I love Steve. And I applaud all the work she's doing with Emerson Collective, which is the sort of her organization. She's working on everything from climate change to education, focusing on the news, as you as you just said. And so many other things that are immigration that are so important to our times, and I applaud her for doing that.
 
-우선은... 로렌이 좋은 사람이라고 생각하구요. 스티브 잡스도 좋은 사람이라고 생각하구요. 로렌이 거의 가지고 계신 Emerson Collective 사로 하는 일들도 정말 좋은 일이라고 생각합니다. 기후 변화부터 교육 까지 모든 일들을 다루고 있고, 뉴스에도 집중하고 있구요. 방금 말씀하셨던 것처럼 현 세대에 정말 중요한 이민 관련 문제도 다루고 있구요. 그런 일을 하는 게 박수를 받아야 한다고 생각합니다.
+우선은... 로렌이 좋은 사람이라고 생각하구요. 스티브 잡스도 좋은 사람이라고 생각하구요. 로렌이 거의 가지고 계신 Emerson Collective 사로 하는 일들도 정말 좋은 일이라고 생각합니다. 기후 변화부터 교육 까지 모든 일들을 다루고 있고, 뉴스에도 집중하고 있구요. 방금 말씀하셨던 것처럼 현 세대에 정말 중요한 이민 관련 문제도 다루고 있구요. 그런 일을 하는 게 박수를 드리고 싶습니다.
 
 
 ##### 인터뷰 진행자:
