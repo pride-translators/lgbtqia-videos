@@ -5,7 +5,10 @@ excerpt: "방금 전에 자랐던 환경에 대해 이야기해주셨는데, 본
 
 
 # 팀쿡: 아이들에게 게이가 되어도 괜찮다고 보여주고 싶었다
-> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/fl5xurWyV2o)서 시청하실 수 있습니다.
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/s8HFyI-dVn0?si=P_gagxLXSkUBFq2A&amp;start=149" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+> 원본 영상: https://youtu.be/fl5xurWyV2o
 
 ##### 인터뷰 진행자:
 You told just a moment ago about growing up and you describe it as a lower middle class environment.

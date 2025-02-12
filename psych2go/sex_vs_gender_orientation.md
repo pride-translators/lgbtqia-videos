@@ -5,7 +5,9 @@ excerpt: "최근 몇 년 동안, 많은 사람들이 섹슈얼리티와 젠더�
 
 
 # 성별 VS 젠더 VS 지향성
-> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/XN-wD8O9tRI)서 시청하실 수 있습니다.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-akzeCk2ec?si=RwHxs8zfpxZCh7Z4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+> 원본 영상: https://youtu.be/XN-wD8O9tRI
 
 In recent years, there have been new findings that have radically changed the way many of us view sexuality and gender. Today's youth will have a new and prejudice free understanding of these topics. That's great. But what about the rest of us who have completed our formal education, who are already being taught outdated sex ed programming. In the United States, 80% of schools are failing government standards for sex ed. In turn, this lack of education has resulted in the ignorance and mistreatment of trans and gender non conforming individuals. Let's take a look at sex, gender and orientation.
 
