@@ -5,7 +5,9 @@ excerpt: "트랜스젠더는 자신의 젠더 정체성이 출생 시 지정된 
 
 
 # 트랜스젠더인 것에 대한 과학
-> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/Kr8RbY8uB_0)서 시청하실 수 있습니다.
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zrpf90nebr4?si=bLW3zQ52AxJpkPSE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
+> 원본 영상: https://youtu.be/Kr8RbY8uB_0
 
 Welcome to transgender science class.
 
