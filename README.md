@@ -6,4 +6,4 @@ LGBTQIA+ 관련 영상 자료가 정리된 저장소입니다.
 - Doctor Youn: [트랜스젠더, 젠더 불쾌감, 그리고 젠더 확정 치료에 대해 학계는 어떻게 말하는가](./doctor-youn/what-studies-say-about-transgender-gender-dysphoria-and-gender-affirming-care.md)
 - Psych2Go: [성별 VS 젠더 VS 지향성](./psych2go/sex_vs_gender_orientation.md)
 - Powered By Rainbows™: [트랜스젠더인 것에 대한 과학](./powered_by_rainbows/the_science_of_being_transgender.md)
-- Psych2Go: [(미완료) 10 Things People Get Wrong About Asexual People](./psych2go/10_things_people_get_wrong_about_asexual_people.md)
+- Psych2Go: [(미완료) 무성애자들에 관해 사람들이 가지는 10가지 오해](./psych2go/10_things_people_get_wrong_about_asexual_people.md)
