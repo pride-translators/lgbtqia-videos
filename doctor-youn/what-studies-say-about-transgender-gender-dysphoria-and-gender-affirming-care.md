@@ -5,9 +5,7 @@ excerpt: "Dylan Mulvaney가 Bud Light와 브랜드 계약을 맺은 후 한동�
 
 
 # 트랜스젠더, 젠더 불쾌감, 그리고 젠더 확정 치료에 대해 학계는 어떻게 말하는가
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qhrNPkjWAoQ?si=FGRMw4S2DPNRCBr3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-
-> 원본 영상: https://youtu.be/VkWxjoJLqQc
+> 영상을 시청하고 싶으신가요? [여기](https://youtu.be/VkWxjoJLqQc)서 시청하실 수 있습니다.
 
 There has been a huge backlash against the transgender community, and specifically transgender social media star Dylan Mulvaney, after they got a brand deal from Bud Light.
 

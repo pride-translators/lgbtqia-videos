@@ -7,7 +7,6 @@ excerpt: "무성애가 무슨 의미인지 아시나요? 무성애 가시화 및
 # 무성애자들에 관해 사람들이 가지는 10가지 오해
 > 영상을 시청하고 싶으신가요? [여기](https://youtu.be/jmnxwplVkrE)서 시청하실 수 있습니다.
 
-
 Hey, Psych2Goers. Welcome back to another video. Thank you for all the support that you've given us. Psych2Go's mission is to make psychology and mental health more accessible to everyone. Now back to the video.
 
 Psych2Go 시청자 여러분 안녕하세요. 또 다른 영상에서 찾아뵙게 되었습니다. 그동안 주고 계신 모든 지지에 감사드립니다. Psych2Go의 임무는 심리학과 정신 건강을 모두가 접근할수 있게 하는 것입니다. 이제 영상으로 돌아가보겠습니다.
