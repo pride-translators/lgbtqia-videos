@@ -21,7 +21,7 @@ Transgender is a term used to describe someone whose gender identity does not co
 
 Though the term transgender was coined in the 1970s, trans people have been around since the dawn of humanity. In fact, the earliest recorded trans person lived in 2900 BCE. And while this person may not have described themselves as trans 5000 years before the term was coined, they were buried according to their gender identity, not their sex assigned at birth. This means the people in 2900 BCE respected a person's gender identity even after death.
 
-트랜스젠더라는 용어가 1970년에 만들어졌지만, 트랜스젠더들은 인류의 시작부터 늘 존재해 왔습니다. 실제로, 가장 일찍 기록된 트랜스젠더는 기원전 2900년에 살고 있었습니다. 그리고 이 용어가 만들어지기 5000년 전에 이 사람들이 자신을 트랜스젠더라고 설명하지 않았을 수도 있지만, 이 사람들은 자신의 젠더 정체성에 맞게 묻혔습니다. 출생 시 지정된 성별이 아니라요. 이는 기원전 2900년에 살던 사람들이 다른 사람의 젠더 정체성을 죽음 이후에도 존중했다는 뜻입니다.
+트랜스젠더라는 용어가 1970년에 만들어졌지만, 트랜스젠더인들은 인류의 시작부터 늘 존재해 왔습니다. 실제로, 가장 일찍 기록된 트랜스젠더인은 기원전 2900년에 살고 있었습니다. 그리고 이 용어가 만들어지기 5000년 전에 이 사람들이 자신을 트랜스젠더라고 설명하지 않았을 수도 있지만, 이 사람들은 자신의 젠더 정체성에 맞게 묻혔습니다. 출생 시 지정된 성별이 아니라요. 이는 기원전 2900년에 살던 사람들이 다른 사람의 젠더 정체성을 죽음 이후에도 존중했다는 뜻입니다.
 
 Some other important terms to know for this science class include... perceived gender, which describes the gender other people may perceive you as when they first meet you, actual gender, meaning the gender you feel you are internally, gender dysphoria, which describes a person's distress when their perceived gender doesn't match their actual gender, and gender euphoria, meaning their happiness when their perceived gender matches their actual gender.
 
@@ -85,7 +85,7 @@ Some of the benefits of puberty blockers and hormone treatment working in tandem
 
 Once a person is over the age of 18 or over the age of 17 with parent or guardian consent. A transgender adult can consider further medical transition. They must have been on hormone therapy for a minimum of a year, and get consent from their doctors and licensed psychiatrists.
 
-부모나 보호자 동의와 함께 18살이나 17살이 넘게 된 경우, 성인 트랜스젠더는 추가적인 의료적 전환을 고려할 수 있습니다. 최소 1년 동안 호르몬 치료를 받고 있는 상태여야 하며, 의사와 라이선스를 가진 정신과 의사들의 동의를 받아야만 합니다.
+부모나 보호자 동의와 함께 18살이나 17살이 넘게 된 경우, 성인 트랜스젠더인은 추가적인 의료적 전환을 고려할 수 있습니다. 최소 1년 동안 호르몬 치료를 받고 있는 상태여야 하며, 의사와 라이선스를 가진 정신과 의사들의 동의를 받아야만 합니다.
 
 For men, they can consider top surgery to remove their breast, hysterectomies to remove their female reproductive organs, falioplasty to construct a penis using a skin taken from other parts of the body, typically your thigh. And metal idoplasty to make your clitoris work more like a penis. For women, they can consider a breast augmentation to get implants in their breast area, orchiectomy, tracheal shave to make their Adam's apple smaller, facial feminization to create more feminine facial features, and penile inversion, vaginoplasty to create a vagina by inverting the penile skin.
 
@@ -93,7 +93,7 @@ For men, they can consider top surgery to remove their breast, hysterectomies to
 
 It should be noted that these surgeries can cost 10s of 1000s of dollars, which many insurance providers do not cover. Before any surgery, doctors will discuss with their patients the medical risk involved in any surgery. Because of these risks and costs, many transgender people decide to only socially transition. And even for those that begin medical transition, with puberty blockers or HRT, most of them choose to never get any surgeries at all. No matter how a transgender person decides to transition or how much social or medical transition they choose to undergo, their gender identity is no less valid than anyone else.
 
-이러한 수술은 수만 달러가 들 수 있으며 많은 보험 제공사들이 보장하지 않는다는 것을 알아두는 것이 좋습니다. 수술 이전에 부모와 함께 의사들이 수술과 동반하는 의료적 위험을 논의하게 됩니다. 이러한 위험과 비용 때문에 많은 트랜스젠더들이 사회적으로만 전환하기로 결정하기도 합니다. 사춘기 억제제나 호르몬 치료와 함께 의료적 전환을 시작한 사람들도 대부분 수술을 아예 받지 않기로 결정하기도 합니다. 트랜스젠더인 사람이 어떻게 전환을 하기로 결정했거나 얼마나 사회적 혹은 의료적 전환을 하든, 그들의 젠더 정체성은 다른 누구와 마찬가지로 완전히 유효합니다.
+이러한 수술은 수만 달러가 들 수 있으며 많은 보험 제공사들이 보장하지 않는다는 것을 알아두는 것이 좋습니다. 수술 이전에 부모와 함께 의사들이 수술과 동반하는 의료적 위험을 논의하게 됩니다. 이러한 위험과 비용 때문에 많은 트랜스젠더인들이 사회적으로만 전환하기로 결정하기도 합니다. 사춘기 억제제나 호르몬 치료와 함께 의료적 전환을 시작한 사람들도 대부분 수술을 아예 받지 않기로 결정하기도 합니다. 트랜스젠더인 사람이 어떻게 전환을 하기로 결정했거나 얼마나 사회적 혹은 의료적 전환을 하든, 그들의 젠더 정체성은 다른 누구와 마찬가지로 완전히 유효합니다.
 
 But you might ask, what lets us know their gender identity is valid according to science?
 
@@ -101,7 +101,7 @@ But you might ask, what lets us know their gender identity is valid according to
 
 Well, in February 2015, the first unbiased study began on trans people to find what causes them to be trans.
 
-2015년 2월, 트랜스젠더들이 트랜스젠더가 되는 원인을 찾기 위한 최초의 편향 없는 연구가 시작되었습니다.
+2015년 2월, 트랜스젠더인들이 트랜스젠더인 원인을 찾기 위한 최초의 편향 없는 연구가 시작되었습니다.
 
 Previous studies had a bias of either trying to find a cure for being trans, funded by a hate group, or a study funded by a trans non profit setting out to find evidence to support their cause.
 
@@ -121,7 +121,7 @@ But one study doesn't prove much. Something cannot be proven until its results c
 
 Dr Bakker focused her study on 160 transgender children and teenage participants, not on any HRT or puberty blockers rather than trans adults. She conducted the same MRI test, and her results were identical to Professor Guy T'sjoen's ENIGI study. She later said, "although more research is needed, we now have evidence that sexual differentiation of the brain differs in young people with gender dysphoria as they show functional brain characteristics that are typical of their desired gender." As a result, she says, "we will then be better equipped to support these young people, instead of just sending them to a psychiatrist and hoping their distress will disappear spontaneously."
 
-Bakker 박사는 그녀의 연구를 160명의 트랜스젠더 아동과 10대 참여자들에게 집중시켰습니다. 성인 트랜스젠더와는 다르게 호르몬 치료나 사춘기 억제제를 받고 있지 않으면서요. 그녀는 동일한 MRI 테스트를 진행했고, 그녀의 결과는 Guy T'sjoen 교수의 ENIGI 연구와 동일했습니다. 나중에 Bakker 박사는 "더 많은 연구가 진행되어야 하긴 하지만, 우리는 이제 갈망하는 젠더에 일반적인 기능적 뇌 특성을 보이기 때문에 뇌의 성적 분화가 젠더 불쾌감을 겪고 있는 청소년들 사이에서 다르게 이루어지는 증거를 가지고 있다"고 말했고, 결과적으로 "그저 정신과 의사에게 보내고 불편감이 사라지길 바라는 것보다 이런 청소년들을 지원해 줄 수 있도록 갖추는 것이 더 좋을 것이다"라고 말했습니다.
+Bakker 박사는 그녀의 연구를 160명의 트랜스젠더 아동과 10대 참여자들에게 집중시켰습니다. 성인 트랜스젠더인과는 다르게 호르몬 치료나 사춘기 억제제를 받고 있지 않으면서요. 그녀는 동일한 MRI 테스트를 진행했고, 그녀의 결과는 Guy T'sjoen 교수의 ENIGI 연구와 동일했습니다. 나중에 Bakker 박사는 "더 많은 연구가 진행되어야 하긴 하지만, 우리는 이제 갈망하는 젠더에 일반적인 기능적 뇌 특성을 보이기 때문에 뇌의 성적 분화가 젠더 불쾌감을 겪고 있는 청소년들 사이에서 다르게 이루어지는 증거를 가지고 있다"고 말했고, 결과적으로 "그저 정신과 의사에게 보내고 불편감이 사라지길 바라는 것보다 이런 청소년들을 지원해 줄 수 있도록 갖추는 것이 더 좋을 것이다"라고 말했습니다.
 
 Other doctors and endocrinologists around the world who have reviewed the data from both studies say the brain scans show some people are somewhere in between both male and female, sharing characteristics of both. We've defined the space on the gender spectrum as non binary or gender fluid. But with this data, it proves their gender identities are just as valid as well.
 
@@ -145,7 +145,7 @@ I've witnessed 1000s of people over the years wearing clothing, shoes, jewelry o
 
 Though the 1000s of MRI brain scans can prove being trans is valid, according to science. No matter where your gender lands on the gender spectrum. To me, validity can be a relative term. No one under the age of 17 is getting surgeries, and most trans people only ever socially transition anyway, so there's never any harm to kids.
 
-과학에 따르면 수천 개의 MRI 뇌 스캔이 트랜스젠더인 것을 증명할 수 있지만, 여러분의 젠더가 젠더 스펙트럼에서 어디에 놓이든, 저에게는 유효성이라는 것이 상대적인 용어가 될 수 있는 것 같습니다. 17살 아래인 그 누구도 수술을 받지 않고, 어쨌든 대부분의 트랜스젠더들이 사회적으로 전환만을 할 것이므로, 아이들에게 해가 될 일은 절대 없습니다.
+과학에 따르면 수천 개의 MRI 뇌 스캔이 트랜스젠더인 것을 증명할 수 있지만, 여러분의 젠더가 젠더 스펙트럼에서 어디에 놓이든, 저에게는 유효성이라는 것이 상대적인 용어가 될 수 있는 것 같습니다. 17살 아래인 그 누구도 수술을 받지 않고, 어쨌든 대부분의 트랜스젠더인들이 사회적으로 전환만을 할 것이므로, 아이들에게 해가 될 일은 절대 없습니다.
 
 No one is coming home from school a different gender, and no child can use a bathroom or play on a sports team matching their gender identity without first spending years working with certified professionals and doctors who agree with their gender identity. So if it makes someone happy to wear a dress and high heels, then you go girl! But for those out there wanting their happiness to end. Please know that coming out isn't someone's way of asking your permission. It's their way of telling you the good news. It's not up to you how valid their identity is. It's only up to you how accepting you'll be. And we hope by learning from this episode, you'll make the right choice.
 
